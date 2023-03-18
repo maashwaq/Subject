@@ -1,2 +1,2 @@
 # Subject
-We will cover wide variety of Subject
+We will cover wide variety of Subjects
